@@ -35,11 +35,24 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An ansvvere to master William Perkins, concerning Christs descension into Hell: By John HiginsHigins
-#####Body#####
 
+1. TO THE CHRISTIAN
+Reader Iohn Higins wiſheth
+perfect knowledge of the Creed
+in Chriſt Ieſu▪
+
+#####Body#####
+WILLIAM PERKINS.It ſeems very likely that theſe words (hee deſcended into hell) were not placed
+in t
+    _ The firſt expoſition.
+WILLIAM PERKINS.The ſecond vſuall expoſition of this 
+clauſe (he deſcended into hell) is, that
+ChriſWILL. PERKINS.vpō the croſſe Chriſt dyinge felt & ſuffered the pangs of hell & the full wrath of GoWILLIAM PERKINS.But let vs come to the fourth expoſition.Hee deſcended into hell, that is,
+when he w
 #####Back#####
-An ansvvere to master William Perkins, concerning Christs descension into Hell: By John HiginsHigins
+
+1. Faultes eſcaped in the printing.
+
 **Types of content**
 
   * There are 32 **drama** parts! This is **prose drama**.
